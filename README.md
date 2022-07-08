@@ -1,6 +1,6 @@
-_**Hello! My name is**_ 
+_**Hello!**_
 
-_**BLOSSOM OBIANUJU EZEOKEKE!**_ ✌😬
+_**My name is BLOSSOM OBIANUJU EZEOKEKE!**_ ✌😬
 
 
 
