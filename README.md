@@ -1,4 +1,4 @@
-*Hello! My name is BLOSSOM OBIANUJU EZEOKEKE!** ✌😬
+**Hello! My name is BLOSSOM OBIANUJU EZEOKEKE!** ✌😬
 
 
 *MY BACKGROUND* 📆 
