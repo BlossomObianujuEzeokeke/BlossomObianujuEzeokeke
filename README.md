@@ -1,4 +1,4 @@
-**Hello everyone! My name is Blossom Obianuju Ezeokeke!** ✌😬
+**Hello! My name is Blossom Obianuju Ezeokeke!** ✌😬
 
 
 
